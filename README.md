@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Morawo
 - 👀 I’m interested in Open source design projects which includes product design, graphic design and brand design 
 - 🌱 I’m currently learning Adobe creative suites
-- 💞️ I’m looking to collaborate on UI/UX designs, brand design and graphic design 
+- 💞️ I’m looking to collaborate on UI/UX designs, brand design and graphic design projects
 - 📫 How to reach me https://www.linkedin.com/in/ibironke-morawo-5295a2127
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I'm easy going, outspoken, fun to be with, loves to connect with the right sets of people
